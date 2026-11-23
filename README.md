@@ -1,4 +1,4 @@
-## Hi there 👋
+Assalomu alaykum! Men Diyorbek
 
 <!--
 **rahimberdiyev1910-hub/rahimberdiyev1910-hub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
